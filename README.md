@@ -1,0 +1,2 @@
+# ejercicio
+preguntas y respuestas 
